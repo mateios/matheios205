@@ -8,6 +8,4 @@ Meu nome é matheios 205 Paludetto
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
-
 ![](https://tenor.com/pt-BR/view/stressed-out-gif-27246628)
