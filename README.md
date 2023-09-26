@@ -10,4 +10,4 @@ Meu nome é matheios 205 Paludetto
 
 paludettomarcelo@gmail.com
 
-![descrição do GIF](https://tenor.com/pt-BR/view/stressed-out-gif-27246628)
+![](https://tenor.com/pt-BR/view/stressed-out-gif-27246628)
